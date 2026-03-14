@@ -183,5 +183,5 @@ Abraraw Ayal Kidanu
 
 📧 Email: abrarawayal6@gmail.com  
 
-🔗 GitHub:  
-https://github.com/Abre1234
+🔗 LinkedIn :  
+https://linkedin.com/in/Abre1234
